@@ -1,4 +1,4 @@
-![alt text](![Uploading 1.png…]()
+
 )
 - 👋 Hi, I’m @hirayousuf727 😄
 - 👀 I’m interested in web developer and it course 
